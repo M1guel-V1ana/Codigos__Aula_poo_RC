@@ -13,3 +13,7 @@ posso trancar a faculdade ?
 ou 
 
 posso estudar pra caramba!
+
+# quero morder um frango 
+ 
+ como ?
