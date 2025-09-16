@@ -3,3 +3,13 @@
  pão com ovo é bom 
  
  quero pão com café 
+
+# saudade de casa 
+
+apenas quero estar em casa com a minha familia,
+posso trancar a faculdade ?
+
+
+ou 
+
+posso estudar pra caramba!
