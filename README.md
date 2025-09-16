@@ -17,3 +17,6 @@ posso estudar pra caramba!
 # quero morder um frango 
  
  como ?
+
+ não sei
+ mas vou fazer 
